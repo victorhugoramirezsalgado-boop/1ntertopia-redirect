@@ -1,2 +1,2 @@
-# 1ntertopia-redirect
+# 1ntertopía-redirect
 1nteropia
